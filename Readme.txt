@@ -7,5 +7,7 @@ spreadsheets learn how to do it in the best possible way?
 3) There is a person who wants to take revenge and hurt me. What must i do? hurt him back?
 Ans: 9/10 times when you take the approach of hurting someone back you will not succeed?  Instead focus on trying to
 be a better version of yourself? Your focus must be you and your goals and not get distracted from your goals?
+4) There is groupism in my company and i have been victimised.
+Ans: The answer would be same as answer 1.
 
 

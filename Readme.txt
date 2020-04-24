@@ -8,5 +8,7 @@ spreadsheets learn how to do it in the best possible way?
 Ans: 9/10 times when you take the approach of hurting someone back you will not succeed with your personal goals?  Instead focus on trying to be a better version of yourself? Your focus must be you and your goals and not get distracted from your goals?
 4) There is groupism in my company and i have been victimised.
 Ans: The answer would be same as answer 1.
+5) why must others put me down? will they go up by putting me down?
+Ans: you can answer this?
 
 
